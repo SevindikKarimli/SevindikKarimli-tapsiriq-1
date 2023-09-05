@@ -1,0 +1,1 @@
+# SevindikKarimli-tapsiriq-1
